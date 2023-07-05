@@ -1,4 +1,4 @@
-ShΔdϴwFirƩ SyΠdicΔtƩ 🔥
+🔥 ShΔdϴwFirƩ SyΠdicΔtƩ 🔥
 
 <!--
 **Shim0zukushichi/Shim0zukushichi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
